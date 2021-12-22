@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **alasaad.ahmad54@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xjAV10dJb-Jw_Q56Erxi6bQovWzdbKEl/view?usp=sharing](https://drive.google.com/file/d/15LLjjF9gMc5bmb2FYJikXpkAzrqX-C3v/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1R3EVMU2h_CrtqWcdHAKg2ylx0r3HKAOi/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
